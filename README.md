@@ -1,5 +1,4 @@
 - 👋 Hello, I’m @Marcus-Cardoso
-- 🔥 Owner of FireGames Network
 - 📫 How to reach me:
 - Discord: MarcusFOFO#5925
 - Steam: /id/marcuscardoso
